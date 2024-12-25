@@ -1,5 +1,5 @@
 👋 Hi, I’m @nithinmgowda 
-I’m into way to many things which barely make sense 
+I’m into way too many things which barely make sense 
 one day i'm into app dev one day its machine learning 
 but one things for sure i love to build be it circuits or applications
 
